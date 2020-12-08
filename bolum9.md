@@ -17,4 +17,6 @@ Hasene ve infak farkli seyledir.
 Infakta Allah 1 e 700 veririr
 Hasene de 1 e 10 verir
 
+Sadaka omru uzatir (Ama eceli ileriye atmaz), Sadak ne demektir?
+Sadaka hizmet karsiligi kamuya odenen vergi demektir. (Tapu islemi icin harc odemek) 
 
